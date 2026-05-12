@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket updated Algorithm: order-book-analysis & automated-trade-execution, the #1 algorithm. Includes order-book-analysis and
 
 
 
